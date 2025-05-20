@@ -1,0 +1,1 @@
+# NCP-MCI-6.10-Certification-Guide-Master-Nutanix-Multicloud-Infrastructure-2025-Updated-
